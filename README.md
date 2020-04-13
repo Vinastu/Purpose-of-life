@@ -1,0 +1,2 @@
+# Purpose-of-life
+TUJUAN SAYA INGIN MENJADI PROGRAMER
